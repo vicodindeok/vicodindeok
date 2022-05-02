@@ -1,0 +1,5 @@
+- 👋 Hi, I’m deok
+- 👀 I’m interested in coding, obv.
+- 🌱 I’m currently learning a lot of things.
+- 💞️ I’m looking to collaborate on anything really.
+- 📫 How to reach me: Just dm me on discord Deok🌺#1464.
